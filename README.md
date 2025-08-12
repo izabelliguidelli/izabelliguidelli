@@ -1,5 +1,6 @@
 ## bom dia👋
 Meu nome é Izabelli Pietra Guidelli, estou no primeiro ano A, estudo no Colégio Juscelino K. De Oliveira 💟
+![](https://media1.tenor.com/m/0gXgpMbPHkUAAAAd/gizista-gizizmus.gif)
 
 **izabelliguidelli/izabelliguidelli** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
